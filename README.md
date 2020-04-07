@@ -1,2 +1,2 @@
 # rhgao01.github.io
-personal
+covid19, bored, hs-seniority hit me
